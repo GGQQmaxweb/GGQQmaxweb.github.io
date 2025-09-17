@@ -1,1 +1,0 @@
-# GGQQmaxweb.github.io
